@@ -23,6 +23,15 @@ https://the-wild-oasis-mahmoud-wahbi.netlify.app/login
 <img width="1351" height="633" alt="Image" src="https://github.com/user-attachments/assets/75344dc9-0175-48d8-9039-f3c417b63100" />
 
 ----
+<img width="1346" height="629" alt="Image" src="https://github.com/user-attachments/assets/2dc865b5-67db-48cc-8394-beffa98c5066" />
+
+----
+<img width="1365" height="626" alt="Image" src="https://github.com/user-attachments/assets/52b0cc48-86b7-498b-87c6-6b1be9fcf60f" />
+
+----
+<img width="1364" height="634" alt="Image" src="https://github.com/user-attachments/assets/67fe39d5-74ec-47d2-baac-fcc95c660867" />
+
+----
 <img width="1346" height="630" alt="Image" src="https://github.com/user-attachments/assets/21b4a525-42dc-4f59-ad0f-ab360b82b5f9" />
 
 ----
